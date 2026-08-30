@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently a Computer Science and Engineering Student at Techniche Hochschule Cologne
+Computer Engineering from Cologne, Germany
 
 
 ## 🌐 Socials:
