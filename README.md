@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Engineering from Cologne, Germany
+A Computer Engineer at Cologne, Germany
 
 
 ## 🌐 Socials:
